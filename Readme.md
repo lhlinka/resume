@@ -19,4 +19,4 @@ expected 2026-2027 - Ph.D. Earth & Environmental Science
 
 ## Research Interests
 
-Volcanology, Igneous Petrology, Magma Geochemistry
+Volcanology, Igneous Petrology, Magma Geochemistry, Planetary Geology, Volatiles
