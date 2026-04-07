@@ -5,7 +5,7 @@
 
 ## Education
 
-2026-2027 - expected Ph.D. Earth & Environmental Science 
+expected 2026-2027 - Ph.D. Earth & Environmental Science 
 <br/>[The Graduate Center, CUNY](https://www.gc.cuny.edu/Home)
 
 2020 - M.A. Geological & Environmental Science 
